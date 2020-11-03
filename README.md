@@ -1,1 +1,1 @@
-PAV-BHAJI (for 3 Servings)
+PAV-BHAJI (for 4Servings)
